@@ -1,7 +1,9 @@
 # Hey!!, I’m **JayCee**
 
 ###  Student | Developer in training  
-Exploring the edges between code, creativity, and curiosity.
+
+**Sometimes**, I have thoughts!!
+Usually not good ones though.
 
 ---
 
